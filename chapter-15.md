@@ -42,148 +42,106 @@ The question I've been avoiding. "What do you want us to look like?"
 
 "I asked first."
 
-Fair enough. "I want to keep doing this. Spending time together, figuring things out, seeing where it goes." I look at her. "But I also know you're thinking about college. About leaving."
+Fair enough. "I want to keep doing this. Spending time together, figuring things out, seeing where it goes." I look at her. "But I also know you're thinking about college. About your future."
 
-Harper's quiet for a long moment, staring out at the mountains. "I sent in an application to Berkeley. California. They have a good education program."
+Harper's quiet for a long moment, staring out at the mountains. "I'll be a senior this fall. Have to start thinking about college applications."
 
-My stomach tightens. "California's far."
+"Your parents want you to stay close, right?"
 
-"I know."
+"Colorado State. Close enough to come home on weekends." She picks at a thread on her jeans. "They've been talking about it since I was fourteen. Like it's already decided."
 
-"When did you apply?"
+"But that's not what you want."
 
-"Two weeks ago. Haven't told my parents yet." She glances at me. "Haven't told anyone except Carol Ann. And now you."
+"I don't know what I want." She looks at me. "Part of me wants to stay close, make them happy, be the good daughter. But part of me wants to go somewhere far away, somewhere nobody knows me as the minister's daughter. Figure out who I am without all these expectations."
 
-"Why Berkeley?"
+I understand that completely. "You've got time to decide."
 
-"Because it's far from here. Because I want to see the ocean. Because I need to know who I am when I'm not the minister's daughter in a town where everyone's known me since I was six." She turns to face me fully. "Because you've made me brave enough to want things for myself."
+"Not much. Applications are due in a few months." She swings her legs, heels tapping against the truck bed. "But that's next year's problem, right? First I have to finish senior year."
 
-The weight of that responsibility settles heavy. "Harper, I don't want to be the reason you—"
+We're quiet for a moment, both of us aware of how uncertain the future is. Me trying to stay somewhere for the first time. Her trying to figure out whether to leave.
 
-"You're not the reason. You're the catalyst." She takes my hand. "I've wanted to leave for years. You just showed me it was possible."
-
-"Your parents will blame me."
-
-"Probably. But that's not your fault." She squeezes my hand. "I'm seventeen. Almost eighteen. I get to make my own choices, even when they disappoint people."
-
-"So you're leaving?" The words come out harder than I intend.
-
-"I don't know yet. Berkeley might not accept me. My parents might refuse to help pay for it. I might chicken out." She pauses. "But I needed to try. Needed to at least apply. You taught me that—try even when it's scary."
-
-We're both trying scary things. Me staying, her leaving. The irony isn't lost on either of us.
-
-"What happens if you go to California and I'm here?"
-
-"I don't know." Her honesty is brutal and refreshing. "Long distance? Summers together? Or maybe it ends and we're grateful for the time we had."
-
-"That's not very romantic."
-
-"No. But it's honest." She shifts closer. "Jesse, I can't promise you forever. I'm seventeen. I don't know what I want long-term. But I know I want right now. I know I want to see what we are when we're not counting down to September."
-
-"And if you go to California?"
-
-"Then we figure it out. Or we don't. But at least we'll have tried."
-
-There it is again—that word. Try. Everyone keeps saying it. Try staying. Try trusting. Try building something even when you don't know if it'll last.
-
-"This is really complicated," I say.
-
-"Really complicated," Harper agrees. "You're staying, I might leave. We don't know what happens next. We can't promise anything long-term."
-
-"Seems like maybe we shouldn't start something when there's so much uncertainty."
-
-"Or maybe uncertainty is just part of it. Maybe nobody ever really knows what happens next and we're just honest enough to admit it." She leans against me. "My parents got married when they were twenty-one. They probably couldn't promise forever either. They just tried."
-
-The sky's darkening now, first stars appearing. The evening star hangs low over the western mountains—the direction Harper might go, the direction I've always gone before Silver Ridge.
-
-"Can I ask you something?" Harper's voice is quiet.
+"Can I ask you something?" Harper's voice changes, becomes more serious.
 
 "Sure."
 
-"Is there any version of this where you'd come with me? If I go to California?"
+"Is there any version of September where you stay? Really stay, I mean. Not just take Frank's job and keep one foot out the door, but actually commit to building something here?"
 
-The question I've been dreading. The one I knew was coming but hoped wouldn't.
+The question hits harder than I expect. That's exactly what I've been avoiding—the difference between physically staying and actually committing to a life here.
 
-"I don't know," I admit. "I just decided to try staying somewhere. Leaving—even for you—feels like running again."
+"I don't know," I admit. "I want to. I told Frank I'm taking the fall job. But wanting to stay and knowing how to stay are different things."
 
-"I understand." There's no anger in her voice, just acceptance. "But I needed to ask."
+"What scares you about it?"
 
-We sit in silence. Two people who care about each other, trying to figure out if what they want is compatible or contradictory.
+"Everything." The honesty comes easier now, with Harper. "What if I try and fail? What if I stay for six months or a year and then wake up needing the road again? What if I hurt you worse than leaving now would hurt you?"
 
-"Jesse?"
+"I understand," she says quietly. "I knew from the start this was temporary. That you were just here for the summer." Her voice is steady but I can hear the hurt underneath. "I tried not to get too attached, but I guess I wasn't very good at that."
 
-"Yeah?"
+"Harper—"
 
-"Are you going to be sorry you stayed? If I leave for college and we end?"
+"It's okay." She wipes at her eyes quickly, not letting the tears fall. "You've been honest the whole time. You never promised to stay. I just... I hoped maybe I'd be worth trying for."
 
-That's the real question under everything. Will I regret taking this risk?
+The unasked question hangs between us: Am I not worth trying for?
 
-"No," I say, and I mean it. "Even if you go to California and we can't make it work, I won't be sorry I stayed. Because staying isn't just about you. It's about me proving I can do it. Finding out if I'm capable of building something instead of constantly leaving."
+It cuts deeper than any accusation could, because she is worth trying for. She's worth everything. But I'm so terrified of failing her that I can't make myself promise what she deserves.
 
-"That's good. That's really good." Harper sounds relieved. "Because I don't want to be your only reason. That's too much responsibility."
+"You are worth it," I say, my voice rough. "Harper, you're worth everything. It's not about you. It's about me being too afraid to trust myself."
 
-"You're not my only reason. But you're a big one."
+"I know." She looks at me, and there's understanding in her eyes along with the hurt. "But knowing it doesn't make it easier."
 
-"I'll take that."
+The sky's darkening now, stars multiplying overhead. The evening star hangs low over the western mountains. The town lights twinkle below like fallen stars. It's beautiful and peaceful, and I'm ruining it by being a coward.
 
-We watch the last light fade from the sky, stars multiplying overhead. The town lights twinkle below like fallen stars. It's beautiful and peaceful and uncertain.
+We sit in silence for a long moment. Then Harper slides off the truck bed.
 
-"Three weeks," Harper says again. "Then we find out what happens next."
+"We should go. I told my parents I'd be home by nine."
 
-"Then we find out."
+The drive back to town is quiet. Not the comfortable silence we usually share, but something heavier. Harper stares out the window at the passing darkness, and I keep my eyes on the road, my hands tight on the steering wheel.
 
-She rests her head on my shoulder. "I'm glad you're staying."
+I want to reach for her hand. Want to promise her I'll stay, that I'll never leave, that she's enough to make me brave. But the words stick in my throat, choked by fear.
 
-"I'm glad you're brave enough to consider leaving."
+At her house, Harper pauses with her hand on the door handle.
 
-"We're quite a pair."
+"Thank you for being honest with me tonight," she says. "For not making promises you don't think you can keep."
 
-"Yeah. We are."
+"Harper—"
 
-The drive back to town is quiet but not uncomfortable. We're both processing, both thinking about the complications we've created. I'm staying, she might leave. We're trying something with no guarantee of success.
+"I need to think about some things." She looks at me, and there's something in her expression I can't quite read. "About whether I can handle loving someone on borrowed time. Whether that's fair to either of us."
 
-But we're trying.
+The word "loving" makes my chest ache. She loves me. And I'm hurting her because I'm too scared to love her back the way she deserves.
 
-At her house, Harper pauses before getting out.
+"I understand."
 
-"Thank you for being honest tonight. About not knowing if you could come with me. About staying being for you, not just for me."
+"Do you?" There's no anger in her voice, just sadness. "I don't think you do, Jesse. I don't think you understand what it's like to watch someone you love choose fear over you. But maybe that's not fair. Maybe fear isn't a choice."
 
-"Thank you for asking. And for understanding."
+She opens the door and slides out of the truck.
 
-She leans over, kisses my cheek—quick and sweet. "Night, Jesse."
+"Night, Jesse."
 
 "Night."
 
-I watch her walk to her door, turn and wave before going inside. Then I drive back to Frank's house, thinking about Berkeley and staying and the question Harper asked that I couldn't answer.
+I watch her walk to her door, her shoulders straight, her head up. She doesn't turn and wave like she usually does. Just goes inside and closes the door behind her.
 
-Is there any version of this where I'd come with you?
+I sit in the truck for a long moment, staring at her house, the light in what I think is her bedroom window.
 
-I said I don't know. But the truth is more complicated.
+I'm hurting her. Right now, tonight, I'm breaking her heart because I'm not brave enough to risk staying. I told myself I was protecting her by being honest about my fear, but Harper's right—I'm choosing fear over her.
 
-The truth is, maybe. Eventually. If I prove to myself I can stay somewhere first. If I learn that leaving isn't my only option. If I build enough stability that choosing to go somewhere becomes different from running away.
+And she deserves better than that.
 
-But right now, I need to stay. Need to prove I can. Need to build something before I let myself consider leaving it.
+The drive back to Frank's house feels longer than it should. Every turn, every street, every familiar landmark reminds me that I'm building something here despite myself. That Silver Ridge has stopped being temporary and started being home.
 
-Harper understands that. She understands that I need to do this, need to find out if staying is possible before I can consider anything else.
+But I'm still too afraid to admit it.
 
-And that's why I love her.
+That night, lying in Frank's spare room, I stare at the water stain on the ceiling and replay the conversation. Harper asking if there's any version where I really stay. Me admitting I don't know how. Her eyes filling with hurt she tried to hide.
 
-That night, lying in Frank's spare room, I think about the question Harper didn't quite ask: will you wait for me if I go to California?
+The question she didn't quite ask but I heard anyway: Am I not worth trying for?
 
-I don't know the answer to that either.
+She is. God, she is.
 
-But I know we've got three weeks to figure out what we are before we decide what we might be.
+But I'm so scared of failing her, of proving that I'm exactly what my stepfather thought I was—someone not worth keeping around—that I can't make myself take the risk.
 
-And for now, that's enough.
+Three weeks until September. Three weeks to figure out if I'm brave enough to choose love over fear.
 
-Three weeks to see what happens when neither of us is running.
+Three weeks to decide if Harper Wells is worth risking everything I've been protecting myself from for two years.
 
-Three weeks to find out if love and uncertainty can coexist.
+I already know the answer.
 
-Three weeks to discover if trying is enough, even when success isn't guaranteed.
-
-It's terrifying.
-
-But it's also the bravest thing either of us has ever done.
-
-And maybe bravery is enough.
+The question is whether I'm brave enough to act on it.
